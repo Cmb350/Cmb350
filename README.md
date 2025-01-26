@@ -4,6 +4,8 @@
 - 💞️ I’m looking to collaborate with Sports companies or companies interested in improving the experience of their clients or users
 - 📫 you can reach me through my LinkedIn or email shared in my profile description
 
+![image](https://github.com/user-attachments/assets/5ee71dff-0c6c-45c8-bbe5-e90477e79325)
+
 
 
 
